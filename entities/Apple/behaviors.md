@@ -35,7 +35,7 @@ how do you hide the camera in the iOS lock screen?
 · if there is a way to do what i want to do, it is not even indexed in the apps search facilities  
 – after i turned·off Content & Privacy Restrictions on my phones Screen Time settings, i got this beauty on my Mac:  
 ![](_images/mac-after_turning·off_content_and_privacy_restrictions.png)  
-· what they fuck is that?  
+· what the fuck is that?  
 · that messaging is totally incongruent with what i did  
 · this is why people ignore dialog boxes; they are totally stupid  
 · a “smart” ecosystem would understand the meaning and intent of my interactions and not waste my motherfucking time with shit like this  

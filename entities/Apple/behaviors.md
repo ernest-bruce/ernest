@@ -43,7 +43,7 @@ how do you hide the camera in the iOS lock screen?
 · luckily im no longer using my Apple Watch; what would that message look like there?  
 – a 3 billion USD company must do better than extracting every cent possible from people while providing user experiences that are not compatible with the expense they incur in contributing to the companys exorbitant profits  
 · if this is the best possible user experience, we deserve way better  
-&nbsp;
+
 a community ignored  
 – apparently Apple is well aware of peoples desire to get the camera out of the lock screen  
 · but Apple ignores it:  

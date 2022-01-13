@@ -1,12 +1,12 @@
 # dishonesty, opaqueness, lies
 
 *How Did Facebook Contribute to Jan. 6? Whistleblower Weighs In | Amanpour and Company*  
-https://youtu.be/ay8RZWwbFQU 
+https://youtu.be/ay8RZWwbFQU  
 12022.01.12  
 
 the company now called Meta actively and purposely violates these values:  
 – facts  
-– transparency 
+– transparency  
 – honesty  
 – human_rights  
 – safety  

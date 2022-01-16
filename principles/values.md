@@ -10,18 +10,26 @@
 believe in science  
 – belief in what has·been scientifically proven  
 – disbelief in anything not·based on 'fact': something that i can·see or can·reproduce  or that an individual or individuals that i trust have·confirmed  
+&nbsp;
+&nbsp;
 
 # facts
 value fact over opinion  
 – facts and evidence are vital to effective discourse  
 – use axioms in worldview  
 – dont give weight to statements that lack factual evidence  
+&nbsp;
+&nbsp;
 
 # transparency
 publish the information i use to·make decisions  
 – dont hide information that is pertinent in making assessments about me  
+&nbsp;
+&nbsp;
 
 # honesty
 be open about my thoughts, motivations  
+&nbsp;
+&nbsp;
 
 

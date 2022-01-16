@@ -1,8 +1,8 @@
 # war over Taiwan?
 
-Historian Alfred McCoy Predicts the U.S. Empire is Collapsing as China’s Power Grows
-https://youtu.be/HendU4zRg9A 
-12021.11
+*Historian Alfred McCoy Predicts the U.S. Empire is Collapsing as China’s Power Grows*  
+https://youtu.be/HendU4zRg9A  
+12021.11  
 
 should the United States go to war with China over Taiwan?  
 – how about the US establishing strong relationships with Central America and South America?  

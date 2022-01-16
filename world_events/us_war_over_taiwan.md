@@ -1,7 +1,7 @@
-# war over Taiwan?
+# US war over Taiwan?
 
-*Historian Alfred McCoy Predicts the U.S. Empire is Collapsing as China’s Power Grows*  
-https://youtu.be/HendU4zRg9A  
+“Historian Alfred McCoy Predicts the U.S. Empire is Collapsing as China’s Power Grows”  
+(https://youtu.be/HendU4zRg9A)  
 12021.11  
 
 should the United States go to war with China over Taiwan?  
@@ -10,7 +10,7 @@ should the United States go to war with China over Taiwan?
 · would it be better to ensure that the American continent can make the products needed to explore earth and other planets?  
 · do we really want to get into another war, with China this time?  
 · yes, Taiwan could be a big loss, but maybe a bigger gain would be creating the biggest economic and political block on earth  
-– the countries in South Africa (aka, “shithole countries”) may also present an great economic opportunity  
+– the countries in South Africa (aka, “shithole countries”) may also present a great economic opportunity  
 · we dont need more expensive wars  
 · we need peaceful, productive relationships with neglected countries in trouble  
 · if the US is serious about protecting people like the Uyghurs, it could ensure that China does not spread its genocide worldwide  

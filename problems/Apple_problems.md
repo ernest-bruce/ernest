@@ -8,8 +8,6 @@ iOS 15.2.1
 macOS 10.15.7  
 – i keep getting this message:  
 ![](apple/safari_plug·in_update_notifier.png)  
-&nbsp;
-
 · my 2012 MacBook is not getting major macOS updates, so this problem will remain with me  
 · restarting will probably eliminate this symptom, but shit!  
 

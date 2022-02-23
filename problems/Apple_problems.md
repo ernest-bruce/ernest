@@ -6,7 +6,7 @@ iOS 15.2.1
 
 
 macOS 10.15.7  
-– i keep getting this message  
+– i keep getting this message:  
 ￼![](apple/safari_plug·in_update_notifier.png)  
 &nbsp;
 
